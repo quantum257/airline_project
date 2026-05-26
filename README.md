@@ -347,8 +347,7 @@ Data Analyst | SQL · Power BI · Python · Excel
 
 - 📧 ssmsd9794@gmail.com
 - 📞 8887728062
-- 🔗 [LinkedIn](#)
-- 💻 [GitHub](#)
+- 🔗 [www.linkedin.com/in/somya-srivastava-7386b5225](#)
 
 ---
 
